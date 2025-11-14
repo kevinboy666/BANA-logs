@@ -1,0 +1,1 @@
+BANA GW2 WvW logs
